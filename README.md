@@ -1,1 +1,0 @@
-# gimk1.github.io
